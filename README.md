@@ -1,1 +1,1 @@
-bandom git'a. tratatatata ta taaaaaaa asasasasdasd
+bandom git'a. tratatatata ta taaaaaaa
